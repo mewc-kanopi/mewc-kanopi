@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mewc-kanopi
+- 👀 This is my kanopicover.com account, find my main account @mewc
